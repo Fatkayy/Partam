@@ -1,1 +1,1 @@
-# Partam
+# Kontol kau
